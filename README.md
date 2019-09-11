@@ -1,0 +1,1 @@
+# effect-power_seattle-ds-080519
